@@ -1,1 +1,1 @@
-# Welcome to the What I'm Doing Blog!
+# Welcome to the "What I'm Doing" Blog!
